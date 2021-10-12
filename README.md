@@ -2,7 +2,7 @@
 ### Introduction
 > * https://youtu.be/ThEpFKL3vJ8
 ### Student Presentations
-> * 1st week: https://youtu.be/He_5OIj599k
+> * 1st week: https://youtu.be/pRz6oH5kjo8
 ### Class Attendance
 > * https://docs.google.com/spreadsheets/d/10eyWRhyO3vkvG189SJGb6bH8tHiheYR33-R1tgMm1ZQ/edit#gid=0
 ### Add your topic here!
