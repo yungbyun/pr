@@ -4,7 +4,8 @@
 ### Student Presentations
 > * 1st week: https://youtu.be/pRz6oH5kjo8
 > * 2nd week: https://youtu.be/MeuzA30Ise4
-> * 3rd week: 
+> * 3rd week: (TBA)
+> * 3rd week: (TBA) 
 ### Class Attendance
 > * https://docs.google.com/spreadsheets/d/10eyWRhyO3vkvG189SJGb6bH8tHiheYR33-R1tgMm1ZQ/edit#gid=0
 ### Add your topic here!
