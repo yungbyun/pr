@@ -7,6 +7,7 @@
 > * 3rd: https://youtu.be/EQYWYR1dE98
 > * 4th: https://www.youtube.com/watch?v=uv0Xi0B3dSQ
 > * 5th: https://youtu.be/nZ_5WovH46A
+> * 6th: TBA
 ### Class Attendance
 > * https://docs.google.com/spreadsheets/d/10eyWRhyO3vkvG189SJGb6bH8tHiheYR33-R1tgMm1ZQ/edit#gid=0
 ### Add your topic here!
